@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ninj4master
+- 👀 I’m interested in Video Games Development & AI
